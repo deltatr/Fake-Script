@@ -11,4 +11,4 @@ PlayStation----Xbox---Google----Google-New----Google_Poll----Protonmail
 Quora----Reddit----Snapchat----Spotify---Stackoverflow----Steam----WordPress
 Yahhoo----Yandex----Adobe----Badoo----Devianart
 
-![alt text](https://www.hizliresim.com/b1jcm0d)
+![alt text](https://i.hizliresim.com/b1jcm0d.png)
