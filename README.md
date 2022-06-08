@@ -10,3 +10,5 @@ Linkedin----Microsoft----Netflix----Origin----Paypal----Pinterets
 PlayStation----Xbox---Google----Google-New----Google_Poll----Protonmail
 Quora----Reddit----Snapchat----Spotify---Stackoverflow----Steam----WordPress
 Yahhoo----Yandex----Adobe----Badoo----Devianart
+
+[url=https://www.hizliresim.com/b1jcm0d][img]https://i.hizliresim.com/b1jcm0d.png[/img][/url]
